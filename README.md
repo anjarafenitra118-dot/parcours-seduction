@@ -1,2 +1,2 @@
 # parcours-seduction
-For FUN
+For YOU MASSOL
